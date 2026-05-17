@@ -35,7 +35,7 @@ https://drive.google.com/file/d/1KnL4w4qWRX415iloyWLIpzUnJ07pxFn8/view?usp=shari
 Presentation showing completed IBM SkillsBuild badges:
 
 **Presentation link:**  
-TU WKLEJ LINK DO PREZENTACJI
+https://drive.google.com/file/d/1PbS0rrdOneM26gMlBa2KsLDZ13laX_Co/view?usp=sharing
 
 ---
 
